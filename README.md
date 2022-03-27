@@ -1,4 +1,4 @@
-### Hi there 👋
+### (´ぺεぺ`*)＜Hi there 👋
 
 - 🤓 Name: Kazukichi(Kazuki TOBITA)
 - ✉️ Email: kazukiti201@gmail.com
