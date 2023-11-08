@@ -3,7 +3,7 @@
 - 🤓 Name: Kazukichi(Kazuki TOBITA)
 - ✉️ Email: kazukiti201@gmail.com
 - 📍 Location: Hyogo
-- 🎂 Birthday: 1998/06/30 (Age: 24)
-- 💖 Like: Music / Art / Books / Cycling / Tetris
+- 🎂 Birthday: 1998/06/30 (Age: 25)
+- 💖 Like: Engineering / Music / Art / Books / Cycling
 - 📜 Bio: 元気しとぉや！
 - 👀 [More profile](https://tyokinuhata.github.io/)
