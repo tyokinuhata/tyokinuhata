@@ -5,5 +5,5 @@
 - 📍 Location: Hyogo
 - 🎂 Birthday: 1998/06/30 (Age: 26)
 - 💖 Like: Engineering / Music / Art / Books / Cycling
-- 📜 Bio: 元気しとぉや！
-- 👀 [More profile](https://tyokinuhata.github.io/)
+- 🚀 Motto: バカサバイバー
+- 👀 [and more ...](https://tyokinuhata.github.io/)
